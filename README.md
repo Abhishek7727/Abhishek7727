@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **anamdev168@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/19_fkOMnyUHaPYNndWTamuYVccTX-qcNV/view](https://drive.google.com/file/d/19_fkOMnyUHaPYNndWTamuYVccTX-qcNV/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/19_fkOMnyUHaPYNndWTamuYVccTX-qcNV/view](https://drive.google.com/file/d/1I4bb64g33VryjVeUW2C-AnMSY9nF5iHF/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
